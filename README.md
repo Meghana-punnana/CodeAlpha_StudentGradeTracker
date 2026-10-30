@@ -30,7 +30,7 @@ Project Files
 
 Author
 
-Meghana Punnana
+PUNNANA MEGHANA
 
 Internship
 
